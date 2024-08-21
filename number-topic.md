@@ -14,6 +14,8 @@ Therefore, it's quite crowded.
 
 I have been in Hanoi for about 15 years.
 
+I have many memories in Hanoi.
+
 In 2009, i was admitted to Hanoi University of Science and Technology.
 
 I studied in Department Applied Mathematics and Informatics.
@@ -41,6 +43,8 @@ We call the boy Gao at home.
 When he was born, he weighed only 2.6 kg.
 
 Now, he is four years old, 1 metter tall, and weighs 12 kg.
+
+He is very well-behaved and intelligent.
 
 
 
