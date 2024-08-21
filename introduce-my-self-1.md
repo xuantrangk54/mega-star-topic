@@ -26,7 +26,7 @@ They have a small farm.
 
 They work very hard.
 
-They are satisfied with their lives.
+They are satisfied [ˈsæt̬.ɪs.faɪd] with their lives.
 
 My dad enjoys having coffee in the morning with his friends.
 
