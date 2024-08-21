@@ -12,7 +12,7 @@ There are 6 people in my family: my parents, my wife, my two son and me.
 
 My parents live in the countryside, while I, my wife and our children live in the city.
 
-My wife is a journalist.
+My wife is a journalist. [ʤɜrnələst]
 
 My sister is a salesperson.
 
